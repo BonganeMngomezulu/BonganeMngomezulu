@@ -16,7 +16,7 @@
 
 - 📫 How to reach me
 •Twitter @MartinMngomezu2
-•Tiktok@mr_bean_mngomezulu
+•Tiktok @mr_bean_mngomezulu
 •YOUTUBE https://www.youtube.com/@mrmngomezulu
 
 
